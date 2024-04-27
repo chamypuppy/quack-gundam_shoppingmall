@@ -1,0 +1,1 @@
+# quack-gundam_shoppingmall
